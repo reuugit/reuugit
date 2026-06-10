@@ -4,10 +4,15 @@ I'm Reuben Nathaniel Juen — a multi-disciplinary creative from Tagum City, Phi
 
 What I do:
 🖊 Graphite Art — Hyperrealistic pencil portraits. Pencil and eraser only, A4 paper. No shortcuts.
+
 🎨 Digital Art — Illustrations and digital artwork using modern tools and software.
+
 🌐 Web Design & Development — Designing and building websites from scratch, including this portfolio you're looking at right now.
+
 🎬 Animation — Traditional and digital animation. Frame by frame if needed.
+
 Currently open for commissions — graphite portraits starting at ₱200.
+
 📧 contactreuu@gmail.com
 🌐 reuugit.github.io/reuuart
 📘 facebook.com/reuben.nathaniel.11581
