@@ -1,6 +1,6 @@
 Hey, I'm Reuu 👋
 
-I'm Reuben Nathaniel Juen — a multi-disciplinary creative from Tagum City, Philippines. I work across traditional art, digital art, web design, and animation. Whether it's a hyperrealistic graphite portrait or a fully built website, I like doing things with intention and care.
+I'm Reuben Nathaniel Juen — a multi-disciplinary creative from Panabo City, Philippines. I work across traditional art, digital art, web design, and animation. Whether it's a hyperrealistic graphite portrait or a fully built website, I like doing things with intention and care.
 
 What I do:
 
